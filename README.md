@@ -1,1 +1,11 @@
+AUTHOR : TEMESGEN ABDISSA
 
+DATE : JANUARY / 2023
+ 
+ 
+my alex journey 
+
+ I'M software enginner .  " DO HARD THINGS"
+ 
+ " IF IT IS DOESN'T CHALLENGE  YOU IT DOESN'T CHANGE YOU"  TEMESGEN ABDISSA
+ 
